@@ -6,3 +6,6 @@
 ​	I was just 2 days away from my interview, and the email arrived at such a coincidence.
 
 ​	Well, the plan has changed, and the first plan has been reopened.
+
+  The notebook is broken again.
+  ?what can i say ?There's nothing I can do that can only succeed in three times,f**k.
